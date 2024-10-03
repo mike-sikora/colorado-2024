@@ -37,6 +37,7 @@
   - [22. Adrenaline Falls](#22-adrenaline-falls)
   - [23. Potato Lake via Spud Lake Trail](#23-potato-lake-via-spud-lake-trail)
   - [24. Castle Rock via Elbert Creek Trail](#24-castle-rock-via-elbert-creek-trail)
+- [Via Ferrata Gear](#via-ferrata-gear)
 
 
 ---
@@ -451,3 +452,24 @@ Some more hikes in the area:
 - **Description**: The hike to **Castle Rock** via the Elbert Creek Trail offers beautiful views of the surrounding area, with a mix of meadows and forests. The trail is relatively moderate and suitable for families. The reward is the striking view of **Castle Rock**, a large rock formation that provides a great backdrop for photos. Eugene will enjoy exploring the meadows along the way.
 
 ---
+
+## Via Ferrata Gear
+
+You can rent Via Ferrata gear in **Ouray, Colorado**, as it’s one of the main spots for Via Ferrata adventures. Here are a few options for renting gear in the area:
+
+### **1. Ouray Mountain Sports**
+- **Location**: 732 Main St, Ouray, CO
+- **What They Offer**: They rent all the essential Via Ferrata gear, including harnesses, helmets, and lanyards specifically designed for Via Ferrata.
+- **Website**: [ouraymountainsports.com](https://www.ouraymountainsports.com)
+  
+### **2. Basecamp Ouray**
+- **Location**: 119 5th Ave, Ouray, CO
+- **What They Offer**: They provide Via Ferrata kits for rent, including helmets, harnesses, and Via Ferrata lanyards. They also offer guided tours if you're interested in a guided experience.
+- **Website**: [basecampouray.com](https://www.basecampouray.com)
+  
+### **3. San Juan Mountain Guides**
+- **Location**: 725 Main St, Ouray, CO
+- **What They Offer**: In addition to guided Via Ferrata tours, they rent gear if you prefer to go on your own. They provide full Via Ferrata setups (helmet, harness, lanyard).
+- **Website**: [mtnguide.net](https://www.mtnguide.net)
+
+I recommend calling ahead or reserving the gear online if possible, as availability can vary based on the season.
