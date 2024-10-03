@@ -1,8 +1,7 @@
 # Colorado Trip
 
-Here's an updated table of contents with links to each section and each hike:
 
-# Table of Contents
+## Table of Contents
 
 - [Day 1: Friday, October 4th - Travel Day](#day-1-friday-october-4th---travel-day)
 - [Day 2: Saturday, October 5th - Purgatory Resort Activities](#day-2-saturday-october-5th---purgatory-resort-activities)
