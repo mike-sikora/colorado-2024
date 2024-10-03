@@ -273,10 +273,6 @@ Some more hikes in the area:
 
 ---
 
-Here’s a continuation of the list with more detailed hiking options based on your request:
-
----
-
 ### **11. Ouray Perimeter Trail**
 - **Distance**: 4.2 miles round trip
 - **Elevation Gain**: 800 feet
