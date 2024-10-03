@@ -406,9 +406,7 @@ Some more hikes in the area:
 ### **24. Castle Rock via Elbert Creek Trail**
 - **Distance**: 3 miles round trip
 - **Elevation Gain**: 500 feet
--
-
- **Trailhead Location**: Elbert Creek Trailhead, near Purgatory Resort
+- **Trailhead Location**: Elbert Creek Trailhead, near Purgatory Resort
 - **Difficulty**: Moderate
 - **Terrain**: Forested paths with some rocky sections and meadows.
 - **Description**: The hike to **Castle Rock** via the Elbert Creek Trail offers beautiful views of the surrounding area, with a mix of meadows and forests. The trail is relatively moderate and suitable for families. The reward is the striking view of **Castle Rock**, a large rock formation that provides a great backdrop for photos. Eugene will enjoy exploring the meadows along the way.
