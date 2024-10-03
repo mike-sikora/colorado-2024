@@ -1,5 +1,45 @@
 # Colorado Trip
 
+Here's an updated table of contents with links to each section and each hike:
+
+# Table of Contents
+
+- [Day 1: Friday, October 4th - Travel Day](#day-1-friday-october-4th---travel-day)
+- [Day 2: Saturday, October 5th - Purgatory Resort Activities](#day-2-saturday-october-5th---purgatory-resort-activities)
+- [Day 3: Sunday, October 6th - More Resort Fun & Durango](#day-3-sunday-october-6th---more-resort-fun--durango)
+- [Day 4: Monday, October 7th - Ouray Via Ferrata & Family Adventures](#day-4-monday-october-7th---ouray-via-ferrata--family-adventures)
+- [Day 5: Tuesday, October 8th - Scenic Hiking & Relaxation](#day-5-tuesday-october-8th---scenic-hiking--relaxation)
+- [Day 6: Wednesday, October 9th - Day in Durango](#day-6-wednesday-october-9th---day-in-durango)
+- [Day 7: Thursday, October 10th - Final Day Hike and Relax](#day-7-thursday-october-10th---final-day-hike-and-relax)
+- [Day 8: Friday, October 11th - Departure](#day-8-friday-october-11th---departure)
+- [Key Considerations](#key-considerations)
+- [Hiking](#hiking)
+  - [1. Purgatory Flats Trail](#1-purgatory-flats-trail)
+  - [2. Spud Lake Trail](#2-spud-lake-trail)
+  - [3. Cascade Creek Trail (Lower Cascades)](#3-cascade-creek-trail-lower-cascades)
+  - [4. Animas River Trail (Durango)](#4-animas-river-trail-durango)
+  - [5. Coal Bank Pass Loop](#5-coal-bank-pass-loop)
+  - [6. Engineer Mountain Trail (Lower Section)](#6-engineer-mountain-trail-lower-section)
+  - [7. Elbert Creek Trail](#7-elbert-creek-trail)
+  - [8. Ice Lake Basin (Lower Section)](#8-ice-lake-basin-lower-section)
+  - [9. Potato Hill (Mini-Spud Mountain)](#9-potato-hill-mini-spud-mountain)
+  - [10. Vallecito Creek Trail](#10-vallecito-creek-trail)
+  - [11. Ouray Perimeter Trail](#11-ouray-perimeter-trail)
+  - [12. Lower Cascade Falls Trail (Ouray)](#12-lower-cascade-falls-trail-ouray)
+  - [13. Ouray Ice Park via Perimeter Trail](#13-ouray-ice-park-via-perimeter-trail)
+  - [14. Upper Box Cañon Falls](#14-upper-box-cañon-falls)
+  - [15. Ouray Ice Park Perimeter Loop](#15-ouray-ice-park-perimeter-loop)
+  - [16. Bridal Veil Falls Trail](#16-bridal-veil-falls-trail)
+  - [17. Red Mountain Number 3](#17-red-mountain-number-3)
+  - [18. Highland Mary Lake Trail](#18-highland-mary-lake-trail)
+  - [19. Colorado Trail above Little Molas Lake](#19-colorado-trail-above-little-molas-lake)
+  - [20. Lime Creek Trail](#20-lime-creek-trail)
+  - [21. Little Molas and Molas Lakes](#21-little-molas-and-molas-lakes)
+  - [22. Adrenaline Falls](#22-adrenaline-falls)
+  - [23. Potato Lake via Spud Lake Trail](#23-potato-lake-via-spud-lake-trail)
+  - [24. Castle Rock via Elbert Creek Trail](#24-castle-rock-via-elbert-creek-trail)
+
+
 ---
 
 ### **Day 1: Friday, October 4th - Travel Day**
