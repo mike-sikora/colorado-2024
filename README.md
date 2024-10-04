@@ -1,5 +1,4 @@
-![image](https://github.com/user-attachments/assets/8a73f7eb-26aa-4014-91a2-5198bc17a444)# Colorado Trip
-
+# Colorado Trip
 
 ## Table of Contents
 
