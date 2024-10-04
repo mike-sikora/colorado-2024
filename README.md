@@ -1,4 +1,4 @@
-# Colorado Trip
+![image](https://github.com/user-attachments/assets/8a73f7eb-26aa-4014-91a2-5198bc17a444)# Colorado Trip
 
 
 ## Table of Contents
@@ -521,3 +521,12 @@ Here are some tips to help you have a safe and enjoyable experience on the **Our
 - **Wildlife**: If you encounter wildlife, observe from a distance and avoid disturbing the animals.
 
 By following these tips, you’ll be well-prepared for a safe and enjoyable Via Ferrata adventure! Let me know if you have any specific concerns or questions about the climb.
+
+### Map: 
+![image](https://github.com/user-attachments/assets/5175d780-be49-406f-b277-188bba31c2b6)
+
+---
+
+![image](https://github.com/user-attachments/assets/07615fce-c90a-40a6-a242-bae646e1e671)
+
+
